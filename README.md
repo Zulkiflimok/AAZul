@@ -33,7 +33,7 @@ THANKS TO ALL MASTAH
 #ADD TEAM TERMUX
 <br> <a href="https://line.me/ti/p/~zul.1.02">LINUX™</a>
 
-#grup wansap
-<br> <a href="https://chat.whatsapp.com/LrynTVHbjN2BRzFRcMKrMu">grup wansap™</a>
+#grup LINE
+<br> <a href="https://line.me/R/ti/g/GfGDGYDNLc">grup LINE™</a>
 
 TEAM TERMUX
